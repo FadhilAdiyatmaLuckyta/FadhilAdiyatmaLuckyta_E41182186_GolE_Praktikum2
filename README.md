@@ -1,0 +1,2 @@
+# FadhilAdiyatmaLuckyta_E41182186_GolE_Praktikum2
+FadhilAdiyatmaLuckyta_E41182186_GolE_Praktikum2
